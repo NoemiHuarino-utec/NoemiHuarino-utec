@@ -14,7 +14,7 @@
 - Mi animal fav es el oso polar y pinguino 🐧
 -  🎼 🎵:
    -  Suelo escuchar música kpop-boys groups: BTS, Enhypen, TXT, Stray kids 👯
-   -  Otros artistas: Billie Eilissh, Harry Styles, Maneskin, etc 🎼 🎵
+   -  Otros artistas: Billie Eilish, Harry Styles, Maneskin, etc 🎼 🎵
 - Contactame en: **noemi.huarino@utec.edu.pe**
 
 ## FIN 🖥️ 💙
