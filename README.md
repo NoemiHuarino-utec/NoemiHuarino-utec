@@ -4,16 +4,16 @@
 
 # ¿Quién soy? 🌞
 - Soy de Perú 🇵🇪
-- Edad: 17 años
+- Edad: 18 años
 - Pronombres: Ella/ She
 
 # Datos adicionales ❄️
 - Me encantan las plantas 🌻 🌱 🌺
-- A veces edito videos
+- El voley es mi deporte fav
 - Me gusta mucho programar 🖥️ 🖱️ 📨
 - Mi animal fav es el oso polar y pinguino 🐧
 -  🎼 🎵:
-   -  Suelo escuchar música kpop-boys groups: BTS, Enhypen, TXT, Stray kids 👯
+   -  Suelo escuchar música kpop-boys groups: Enhypen, BTS, TXT, Stray kids 👯
    -  Otros artistas: Billie Eilish, Harry Styles, Maneskin, etc 🎼 🎵
 - Contactame en: **noemi.huarino@utec.edu.pe**
 
