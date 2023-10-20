@@ -4,13 +4,20 @@
 
 # ¿Quién soy? 🌞
 - Soy de Perú 🇵🇪
-- Edad: 18 años
+- Edad: 19 años
 - Pronombres: Ella/ She
+
+# Habilidades en programación
+- Python
+- JavaScript
+- HTML
+- AWS
+- Vue.js
 
 # Datos adicionales ❄️
 - Me encantan las plantas 🌻 🌱 🌺
 - El voley es mi deporte fav
-- Me gusta mucho programar 🖥️ 🖱️ 📨
+- Me gusta mucho programar y el diseño gráfico🖥️ 🖱️ 📨
 - Mi animal fav es el oso polar y pinguino 🐧
 -  🎼 🎵:
    -  Suelo escuchar música kpop-boys groups: Enhypen, BTS, TXT, Stray kids 👯
