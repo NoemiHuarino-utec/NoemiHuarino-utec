@@ -4,7 +4,7 @@
 
 # ¿Quién soy? 🌞
 - Soy de Perú 🇵🇪
-- Edad: 19 años
+- Edad: 21 años
 - Pronombres: Ella/ She
 
 # Habilidades en programación
